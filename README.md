@@ -11,16 +11,27 @@ We all enjoy live streaming on various streaming platforms. There are various st
 ## How to download Disney plus Canon IJ on a MacBook?
 
 MacBook has access to Disney Plus. Then one can enjoy watching the latest movies, TV shows, series, news, sports, etc., on Disney Plus using a MacBook. We will see how to set up Disney Plus start on the MacBook. The First step is to download and install the application of Disney Plus on a MacBook. So following are the steps to download and install Disney Plus on MacBook;
+
 *Open the browser of your MacBook.
+
 *Then search for Disney Plus Hotstar application downloading.
+
 *Or you can visit the Apple store from your MacBook.
+
 *Then search for Disney Plus in the search bar.
+
 *After that, open the Disney Plus application.
+
 *Then click on the get option or download option.
+
 *Now downloading of the Disney Plus application on MacBook will begin.
+
 *You can also download the Disney plus software using the browser of your MacBook.
+
 *After downloading the application, the installation will begin.
+
 *And now, you are ready to use the Disney Plus application on your MacBook.
+
 *That's it.
 
 
@@ -33,17 +44,29 @@ One can enjoy watching the latest movies on Disney Plus using their MacBook. The
 ### Steps to sign up for Disney plus IJ on MacBook using Browser
 
 Before activating Disney Plus, you need to download the software or application. So we will see steps to download Disney Plus canon on your macbook using the browser. Follow the steps below;
+
 *Open the Disney Plus application using the Canon browser.
+
 *Or you can directly visit Disney plus the official website using the MacBook browser.
+
 *Then the homepage of Disney plus will open.
+
 *From the homepage, click on the login option in the screen's top right corner.
+
 *Enter your email ID, mobile number, or Facebook ID to log in.
+
 *Then you will receive OTP to confirm your login on Disney Plus.
+
 *And then click on the login option to continue on Disney Plus.
+
 *Now a new tab will open.
+
 *And from there, you can select the parental controls and add or cancel the subscription on Disney Plus.
+
 *After that, you can click on the play button and watch your favorite version of Disney Plus on your MacBook.
+
 *That's it; this way, you can log in with your Disney Plus Start on your MacBook using your browser.
+
 
 
 ## Error 83 while using Disney Plus on MacBook:
